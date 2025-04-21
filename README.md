@@ -1,1 +1,1 @@
-# Readme
+- Enneagram [Type 3](https://enneagramuniverse.com/enneagram/learn/enneagram-types/enneagram-type-3-the-achiever) — The Achiever  
